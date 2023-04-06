@@ -3,3 +3,5 @@ for all the kids who think they "cracked" my woofer lmao here are the files. sho
 
 
 time wasters... 
+
+my discord : Adjutant#8889
